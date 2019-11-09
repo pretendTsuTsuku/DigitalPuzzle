@@ -1,0 +1,1 @@
+![image](https://github.com/pretendTsuTsuku/DigitalPuzzle/blob/master/gif/%E6%95%B0%E5%AD%97%E6%8B%BC%E5%9B%BE.gif)
